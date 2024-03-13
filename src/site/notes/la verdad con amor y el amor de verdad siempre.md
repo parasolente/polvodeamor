@@ -4,3 +4,4 @@
 
 
 hola mundo amor
+calendarizacion y notas sobre mis viajes  por las galaxias.
